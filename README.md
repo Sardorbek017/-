@@ -1,2 +1,1 @@
-# -
-mc gregor xivada sayr qilyabdu
+khorezm in paris
